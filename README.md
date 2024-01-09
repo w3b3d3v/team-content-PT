@@ -1,0 +1,1 @@
+# squad-midiatico-content-PT
