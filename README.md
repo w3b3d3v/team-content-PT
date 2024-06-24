@@ -1,1 +1,1 @@
-# squad-midiatico-content-PT
+# team-content-PT
